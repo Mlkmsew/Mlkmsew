@@ -34,3 +34,4 @@ A dedicated Information Systems student from Debre Birhan University, passionate
 [<img src="https://img.shields.io/badge/Telegram-Contact%20Me-0088cc?style=flat-square&logo=telegram&logoColor=white">](https://t.me/@ye27lg) [<img src="https://img.shields.io/badge/Email-Contact%20Me-d14836?style=flat-square&logo=gmail&logoColor=white">](mailto:Melkamsewalehegn@gmail.com)
 
 ---
+⭐ Thanks for visiting my profile!
